@@ -1,1 +1,1 @@
-University student, codes for fun.
+I am a university student who codes for fun (sometimes).
